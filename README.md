@@ -1,4 +1,4 @@
-## Primate Systems Neurophysiology
+## Systems Neurophysiology in Primates 
 ### INB UNAM Juriquilla - Lab. B15
 
 Reach to us at: merchantlab.b15@gmail.com
